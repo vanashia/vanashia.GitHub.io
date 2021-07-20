@@ -1,3 +1,3 @@
 ##van
-###Contact me:
+###Contact me
 Email:jerry.kimey@gmail.com
